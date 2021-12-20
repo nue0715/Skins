@@ -1,5 +1,5 @@
 # Skins
-\\:D/
+All of these have smoke turned off btw
 
 # [Metalsonic](https://failinq.s-ul.eu/6ZYLBpla)
 ![](https://failinq.s-ul.eu/YldbGuCJ)
