@@ -15,3 +15,6 @@ All of these have smoke turned off btw
 
 # [erictran0 edit](https://failinq.s-ul.eu/aKkpIc89)
 ![](https://failinq.s-ul.eu/TVTK0gsa)
+
+# [spk edit](https://failinq.s-ul.eu/wu9ybH97)
+![](https://failinq.s-ul.eu/1RAYQsxm)
