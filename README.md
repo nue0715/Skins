@@ -13,9 +13,6 @@ All of these have smoke turned off btw
 # [c edit](https://failinq.s-ul.eu/ScKzvHht)
 ![](https://failinq.s-ul.eu/NrVYN48E)
 
-# [(c edit) Rei Ayanami](https://failinq.s-ul.eu/2sOS6tMF) (thenk yo Icysandwich) (Main)
-![](https://failinq.s-ul.eu/BHOsRuXy)
-
 # [erictran0 edit](https://failinq.s-ul.eu/aKkpIc89)
 ![](https://failinq.s-ul.eu/TVTK0gsa)
 
