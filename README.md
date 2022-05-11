@@ -12,6 +12,7 @@ All of these have smoke turned off btw
 
 # [c edit](https://failinq.s-ul.eu/ScKzvHht)
 ![](https://failinq.s-ul.eu/NrVYN48E)
+# [c edit - Nue ver](https://failinq.s-ul.eu/PzkWNQf2)
 
 # [erictran0 edit](https://failinq.s-ul.eu/aKkpIc89)
 ![](https://failinq.s-ul.eu/TVTK0gsa)
